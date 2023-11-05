@@ -12,6 +12,4 @@ I'm a product manager, maker, language learner and educational blogger. I come f
 
 🗣️ Wanna chat? Reach out through one of my channels:
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue)](https://www.linkedin.com/in/ilonakedracka)
-
-[![Email](https://img.shields.io/badge/Email-white)](mailto:ilo.borsos@gmail.com)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue)](https://www.linkedin.com/in/ilonakedracka)        [![Email](https://img.shields.io/badge/Email-white)](mailto:ilo.borsos@gmail.com)
