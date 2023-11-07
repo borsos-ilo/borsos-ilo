@@ -8,7 +8,7 @@ I'm a product manager, maker, language learner and educational blogger. I come f
 
 🇭🇺 After hours, I'm an avid learner of Hungarian language. I also like to make things that make my life easier, most of which are stored in this GitHub space.
 
-👩‍🎓 I craft my non-institutional, personal education path on my own - I'm learning new things though reading, talking with people that know more about the thing I'm interested in (or with ChatGPT), trying and failing, taking online courses are making things. I document my ups, downs, tips and tricks on my [blog](https://poczatkujaca.pl) :poland:
+👩‍🎓 I craft my non-institutional, personal education path on my own - I'm learning new things though reading, talking with people that know more about the thing I'm interested in (or with ChatGPT), trying and failing, taking online courses and making things. I document my ups, downs, tips and tricks on my [blog](https://poczatkujaca.pl) :poland:
 
 🗣️ Wanna chat? Reach out through one of my channels:
 
