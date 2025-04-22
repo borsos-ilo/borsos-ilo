@@ -14,7 +14,10 @@ I work as a product manager and I enjoy this career a lot. It's so much fun to b
 2. 📫 [LinkedIn](https://www.linkedin.com/in/ilonaborsos/)
 
 ## Hobbies
-I enjoy rollerblading, jigsaw puzzles, photography, the history of Christianity, contemporary art, creative coding. I learn English and Hungarian. I used to be a circus artist as well as travel the world through cheap flights and hitch-hiking, but these days I'm more of a homebody, enjoying calm and cozy days with my sweet husband. 
+I enjoy rollerblading, jigsaw puzzles, photography, the history of Christianity, contemporary art, creative coding. I learn English and Hungarian. 
+
+I used to be a circus artist as well as travel the world through cheap flights and hitch-hiking, but these days I'm more of a homebody, enjoying calm and cozy days with my sweet husband. 
+
 I maintain a few threads that document these hobbies - I don't update them religiously, but I still enjoy them a lot.
 1. 🖼️ [@artofcentraleurope](https://www.instagram.com/artofcentraleurope/)
 2. 📷 [Flickr](https://www.flickr.com/photos/199990665@N08/)
