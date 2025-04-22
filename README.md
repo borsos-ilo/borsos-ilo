@@ -6,7 +6,7 @@ Hi! I'm Ilona and this is my little slice of the internet where I explain myself
 
 ## Core
 I think a lot about what it means to me to have a life well lived - and how to craft a life that works _for me_. 
-1. 🤔 My values
+1. 🤔 [My values](https://gist.github.com/borsos-ilo/e867cba3890b6251583a8e99781be17a)
 
 ## Work
 I work as a product manager and I enjoy this career a lot. It's so much fun to be building new things! It's also full of extremely transferrable skills that in my opinion can help everyone to become a more well-rounded person in general.
