@@ -9,7 +9,7 @@ I think a lot about what it means to me to have a life well lived - and how to c
 1. 🤔 [My values](https://gist.github.com/borsos-ilo/e867cba3890b6251583a8e99781be17a)
 
 ## Work
-I work as a product manager and I enjoy this career a lot. It's so much fun to be building new things! It's also full of extremely transferrable skills that in my opinion can help everyone to become a more well-rounded person in general.
+I work as a product manager and I enjoy this career a lot. It's so much fun to be building new things and creating an inspiring environment for smart people to do their best job! It's also full of extremely transferrable skills that in my opinion can help everyone to become a more well-rounded person in general.
 1. 🌱 [My product philosophy](https://gist.github.com/borsos-ilo/4ef2e056904ffaea7a0deb689253a51a)
 2. 📫 [LinkedIn](https://www.linkedin.com/in/ilonaborsos/)
 
